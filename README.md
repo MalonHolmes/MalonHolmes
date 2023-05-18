@@ -1,3 +1,3 @@
-# MalonHolmes.github.io
+# MalonHolmes
 
 Loney Love
